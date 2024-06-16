@@ -1,1 +1,1 @@
-aattelin koodata matopelin
+fivem softaim
